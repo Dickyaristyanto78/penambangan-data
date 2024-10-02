@@ -1,0 +1,1 @@
+# penambangan-data-minggu-1
